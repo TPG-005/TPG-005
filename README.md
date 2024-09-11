@@ -1,4 +1,3 @@
 Hey, I'm a student
-Currently working on a borderlands 2 patch
-Can't think what else to put here
-
+Currently working on random stuff in my free time
+Not sure what else to put 
